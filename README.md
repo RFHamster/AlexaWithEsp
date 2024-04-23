@@ -48,5 +48,9 @@ Agora no caso da minha Alexa de controle os dispositivos são cadastrados pelo a
 
 Com o dispositivo configurado é so controlar pelo APP ou pela voz com o nome dele!!!
 
+Videozinho utilizando o sistema!
+
+https://youtube.com/shorts/DAvW-8VE1jA
+
 
 
